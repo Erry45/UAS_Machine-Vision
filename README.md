@@ -1,3 +1,1 @@
-UAS Machine Vision/n
-Nama : Erry Nur Yuliansyah/n
-NIM  : 4212101029
+Nama : Erry Nur Yuliansyah, NIM  : 4212101029
